@@ -1,4 +1,4 @@
-<a href="https://im.ge/i/Xr8Yu6"><img src="https://i.im.ge/2021/12/31/Xr8Yu6.png" alt="Xr8Yu6.png" border="0"></a>
+<a href="https://im.ge/i/Xr8Znh"><img src="https://i.im.ge/2021/12/31/Xr8Znh.png" alt="Xr8Znh.png" border="0"></a>
 
 <div align="left">
   <a href="https://github.com/acarolinadamore">
