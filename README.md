@@ -1,5 +1,3 @@
-<a href="https://im.ge/i/Xr8Znh"><img src="https://i.im.ge/2021/12/31/Xr8Znh.png" alt="Xr8Znh.png" border="0"></a>
-
 <div align="left">
   <a href="https://github.com/acarolinadamore">
   <img height="180em" src="https://github-readme-stats.vercel.app/api/top-langs/?username=acarolinadamore&layout=compact&langs_count=7&theme=dracula"/>
